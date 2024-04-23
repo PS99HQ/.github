@@ -1,2 +1,2 @@
 ## About us
-[comment]: <![Join the discord](https://assets-global.website-files.com/6257adef93867e50d84d30e2/636e0a6a49cf127bf92de1e2_icon_clyde_blurple_RGB.png)> 
+PS99 HQ is the go-to stop for dedicated and technical ps99 players, whether you're a clan owner, clan wars enthusiast, casual player, developer, macro user and more.
